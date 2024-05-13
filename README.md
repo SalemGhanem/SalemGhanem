@@ -1,0 +1,9 @@
+- 👋 Hi, I’m SalemGhanem
+- 👀 I’m interested in : GameDev & web Dev , Generally software engineering
+- 🌱 I’m currently learning : Game Dev
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me abdullahsamih@hotmail.com
+- ⚡ Fun fact : I learned game development for a year
+- ⚡ fact: I didn't work with a team before
+- ⚡ fact: Iam not a Native speaker in English but I speak english very well
+- ❤️ I support Palestine
